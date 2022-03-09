@@ -1,1 +1,0 @@
-# jagarop-jagarop.github.io
